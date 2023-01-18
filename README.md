@@ -2,4 +2,3 @@
 - 😃hoje eu trabalho com elétrica
 - 🤩estudo javascript/html/css
 - 😄 Pronouns: ele/dele
-- 
